@@ -1,0 +1,2 @@
+# ajisetiyaji
+IT,GAMERS,BLOGGER,OTAKU
